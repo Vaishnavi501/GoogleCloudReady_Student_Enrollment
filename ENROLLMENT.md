@@ -50,9 +50,9 @@
 
 🔰 Join the WhatsApp Group Below:
 
-Group 1 - https://chat.whatsapp.com/F3EE5JlNzPvJot1gxJqdJb
+Group 1 - https://chat.whatsapp.com/DuRhccJWOmP79612iWRMvs
 
-Group 2 - https://chat.whatsapp.com/DuRhccJWOmP79612iWRMvs
+Group 2 - https://chat.whatsapp.com/F3EE5JlNzPvJot1gxJqdJb
 
 Follow Me on LinkedIn:
 
