@@ -31,7 +31,7 @@
 `🔴 IMP NOTE 🔴` *If you are already having skillboost account and have done few quests or skill badges before this enrollment then it will not be considered for this program & you will note be elligible for the prizes. To be Eligible for prizes you need to create a new account on skillboost.*
 
 10) Fill the remaining Details and Submit the form.(Any improper detail filling or violation of Terms and Conditions may lead to disqualification from the program)
-11) After submitting the form, you will `recieve an email` on your registered email ID within 5-10 minutes.
+11) After submitting the form, you will `receive an email` on your registered email ID within 5-10 minutes.
   - If you unable to find your mail in inbox, then please check `Spam` or `Promotions` Box
 12) `🔴 IMP 🔴` In the mail, you will find all important instructions in order to getting started & redeeming your code.
   - Open `Incognito Window` & paste the link. You will see a popup.
@@ -50,7 +50,7 @@
 
 🔰 Join the WhatsApp Group Below:
 
-Group 1 - https://chat.whatsapp.com/FY4p1vh927qBkzPMXc9WFN
+Group 1 - https://chat.whatsapp.com/F3EE5JlNzPvJot1gxJqdJb
 
 Group 2 - https://chat.whatsapp.com/DuRhccJWOmP79612iWRMvs
 
