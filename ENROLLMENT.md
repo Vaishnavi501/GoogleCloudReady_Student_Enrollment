@@ -6,7 +6,7 @@
 
 ## Steps to Enroll for Google Cloud Ready Facilitator Program!! It's Free
 
-1) Go to the link:- [shorturl.at/anBR3](shorturl.at/anBR3)
+1) Go to the link:- [https://events.withgoogle.com/googlecloudready-facilitator-program/](https://events.withgoogle.com/googlecloudready-facilitator-program/)
 2) Click Enroll for program(form wil be displayed)
 3) Fill in required details.
 4) Enter valid `E-mail ID` (all communications will take place through it)
