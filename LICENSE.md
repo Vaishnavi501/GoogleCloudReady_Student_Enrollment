@@ -1,1 +1,0 @@
-GoogleCloudReady Facilitator Program
